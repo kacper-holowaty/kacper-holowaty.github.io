@@ -12,3 +12,6 @@
 
 1. [**Robert Lewandowski**](https://www.youtube.com/watch?v=JfssYhqj7gw)
 2. [**Marcin**](https://www.youtube.com/watch?v=-cYBOGo0ptk) [**Najman**](https://www.youtube.com/watch?v=hzpbdPkj8o4)
+3. [**Mariusz Pudzianowski**](https://www.youtube.com/watch?v=wGeFVtLo1RA)
+4. [**Adam Małysz**](https://www.youtube.com/watch?v=QjXJrUOHwlo)
+5. [**Tymek Puchacz**]
